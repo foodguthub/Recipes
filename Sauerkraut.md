@@ -1,5 +1,7 @@
 #SuperSimple sauerkraut
 
+(currently [available in the Bank](https://www.google.com/maps/d/u/0/edit?mid=zCoDc3SSi24I.korG11Dfhm4A))
+
 **Ingredients**
 * 4 or 5 heads of red or green cabbage
 * 1/4 cup salt
