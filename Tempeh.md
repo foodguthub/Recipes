@@ -1,8 +1,8 @@
 **Ingredients**
 
-*2 cups hulled soy beans 
-*2 tablespoons vinegar
-*3/4 teaspoon (1 packet) [tempeh starter](http://github.com/foodguthub/Fermentation-Bank)
+* 2 cups hulled soy beans 
+* 2 tablespoons vinegar
+* 3/4 teaspoon (1 packet) [tempeh starter](http://github.com/foodguthub/Fermentation-Bank)
 
 **Instructions**
 
