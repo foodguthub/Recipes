@@ -1,5 +1,8 @@
 #Tempeh!
 
+
+(currently [available in the Bank and elsewhere](https://www.google.com/maps/d/u/0/edit?mid=zCoDc3SSi24I.korG11Dfhm4A))
+
 **Ingredients**
 
 * 2 cups hulled soy beans 
